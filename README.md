@@ -1,4 +1,4 @@
-# BAD HOP – Fam*ly
+# BAD HOP – Fam*ly（feat. Tiji Jojo、DADA、LEX）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
